@@ -1,1 +1,1 @@
-# MexicaMethod
+# MexicanMethod
